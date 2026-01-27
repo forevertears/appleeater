@@ -1,4 +1,4 @@
-![image alt](https://github.com/MARTINEATISHY/Nothing/blob/873f4b40a37b6971fc59ead58a2e49fccd0b3d13/e095e868-4d83-4e19-a4f2-b642cd183e86.jpeg)
+![image alt](https://tenor.com/SN6BQJVI8I.gif)
 
 **° ′’ ˙ . 𓏵× — heya there !  ’′ °**
 
