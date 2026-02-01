@@ -11,4 +11,5 @@
  
 ***i have undiagnosed adhd, anxiety and depression.***
 
-also; b3a,r@e,v3x,l#lu/@lli,@l@stor,z@i or anyone who knows them or are their friends DNI,NEVER EVER AGAIN.
+also; b3a,r@e,v3x,l#lu/@lli,@l@stor,z@i or anyone who knows them or are their friends DNI,NEVER EVER AGAIN. 
+i have some psychopathic traits (it's an espectrum,i'm not a psychopath nor a diagnosed one) but you could say i'm 'one of those' just in a more lower intencity level. (doesnt feel guilt,masks emotions,did bad stuff in the past w animals and family,doesnt understand others feelings,lack of empathy,doesnt feel anything in a shocking situation or ppl dying,manipulates others for own gain,shoplifting,etc.) i relate to all of those. yes as i said,not a fully psycho;i still have some emotions and feelings,i care for others and love some,have traumas and so on..
